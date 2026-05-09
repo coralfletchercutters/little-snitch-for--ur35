@@ -1,4 +1,4 @@
-
+Get the ultimate Little Snitch for macOS automation with vip Little Snitch for macOS Automation | privacy-protection + real-time-protection. Featuring privacy-protection and
 
 
 
